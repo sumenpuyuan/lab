@@ -1,1 +1,1 @@
-hello lvxuejie！
+具体的使用方法请访问我的博客：http://sumenpuyuan.com/2015/11/11/%E5%AE%9E%E9%AA%8C%E5%AE%A4%E7%89%A9%E8%81%94%E7%BD%91%E4%B8%8A%E5%B1%82%E5%BC%80%E5%8F%91%E6%97%A5%E5%BF%97/
